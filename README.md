@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ravry
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning c++, C#, Java, Python
+- 💞️ I’m looking to collaborate on nothing atm
+- 📫 How to reach me (no way)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm emotionless
