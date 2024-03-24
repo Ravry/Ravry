@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nothing atm
 - 📫 How to reach me (no way)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm emotionless
+- ⚡ Fun fact: I don't even know what to do on GitHub tbh
